@@ -1,0 +1,1 @@
+# promo70-mobile
